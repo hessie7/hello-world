@@ -7,4 +7,4 @@ I've had tacos on the moon and find them far superior to Earth tacos.
 
 This "I" is not me.
 
-Bye :)
+Bye Humans:)
